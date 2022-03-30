@@ -1,0 +1,1 @@
+prejvi je docela pepega
